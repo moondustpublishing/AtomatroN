@@ -1,2 +1,2 @@
 # AtomatroN
-Blockchain technology = The Future of DeFi
+Atom A Tron = Get In The Game
